@@ -1,1 +1,1 @@
-# ashte-mzere.com
+# mz
